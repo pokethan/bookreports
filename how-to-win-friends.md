@@ -14,7 +14,7 @@ how to win friends and influence people.
 ## What is the setting of the story? (Where and when does it take place?)
 
 
-## What are the main events from the story?
+## What are the main events/ideas from the story?
 
 
 ## How does the story end?
