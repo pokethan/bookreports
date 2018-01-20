@@ -29,7 +29,7 @@ The principles:
 5. Let the other person save face. 
 6. Praise the slightest improvement and praise every enviorment. Be "hearty in your praise". 
 7. Give the other person a fine reputation to live up to.
-8. Use encouragement.Make fault easy to correct.                                                                                                                           9.Make the other person happy about doing the thing you suggest.                                                        
+8. Use encouragement.Make fault easy to correct.                                                                                                                           9. Make the other person happy about doing the thing you suggest.                                                        
  
  If someone reads the principles then i hope you can apply these in your life!
  
