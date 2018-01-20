@@ -1,8 +1,4 @@
-# Book Report
-
-## Title
-
-THE LION,the WITCH and the WARDROBE.
+# THE LION,the WITCH and the WARDROBE.
 
 ## Author(s)
 
