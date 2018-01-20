@@ -8,16 +8,13 @@ How to Win Friends and Influence People.
 
 Dale Carnegie.
 
-
 ## What are the main characters in the story?
 
 Does not apply
 
-
 ## What is the setting of the story? (Where and when does it take place?)
 
 Does not apply
-
 
 ## What are the main events/ideas from the story
 the principles.
