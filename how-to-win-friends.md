@@ -5,14 +5,17 @@
 how to win friends and influence people.
 
 ## Author(s)
+
 DALE CARNEGIE.
 
 
 ## What are the main characters in the story?
-does not apply
+Does not apply
+
 
 ## What is the setting of the story? (Where and when does it take place?)
-does not apply
+Does not apply
+
 
 ## What are the main events/ideas from the story
 the principles.
@@ -27,4 +30,4 @@ principle 8:Use encouragement.Make fault easy to correct.
 principle 9:Make the other person happy about doing the thing you suggest.
  If someone reads the principles then i hope you can apply these in your life!
 ## How does the story end?
-does not apply
+Does not apply
